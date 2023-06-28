@@ -1,2 +1,2 @@
 # justplaying
-Having fun!
+Fun is dumb!
